@@ -17,6 +17,8 @@
 [www.amazon.com(DEARBB)](https://www.amazon.com/s?me=AHMUPFY9R8L9R&marketplaceID=ATVPDKIKX0DER)
 [www.amazon.com(patpat)](https://www.amazon.com/s?me=A8TA2M0ZZAE8L&marketplaceID=ATVPDKIKX0DER)
 [www.amazon.com(danshow)](https://www.amazon.com/s?i=merchant-items&me=A291X56WEOL7RR&marketplaceID=ATVPDKIKX0DER&qid=1676011520&ref=sr_pg_1)
+[www.amazon.com(kanu)](https://www.amazon.com/s?me=A2H8K3AKMC7Z19&marketplaceID=ATVPDKIKX0DER)
+[www.amazon.com(MaaMgic)](https://www.amazon.com/s?me=A22Z523T7VBH52&marketplaceID=ATVPDKIKX0DER)
 
 ## 拍摄
 [cheekyplum.com(dress)](https://cheekyplum.com/products/penelope-knit-dress-lilac-gingham)
@@ -49,6 +51,16 @@
 | ![](https://gitss.oss-cn-shenzhen.aliyuncs.com/md/1676001128797.png)                   | https://www.amazon.com/SMILING-PINKER-Crewneck-Cardigans-Sweaters/dp/B073CF7FFW                                                        |
 | ![](https://gitss.oss-cn-shenzhen.aliyuncs.com/md/1676014689903.png)                   | https://bitsybugboutique.com/products/girls-romper-jumpsuit                                                                            |
 | ![](https://gitss.oss-cn-shenzhen.aliyuncs.com/md/1676082755759.png)                   | https://www.amazon.com/Gymnastics-Leotards-Sleeveless-Colorful-Competition/dp/B09WR6654J                                               |
+| ![](https://m.media-amazon.com/images/I/81eogBQBuLL._AC_UX569_.jpg)                    | https://www.amazon.com/MaaMgic-Vintage-Trunks-Swimming-Bathing/dp/B0BMNW58NW/                                                                                                                                   |
+| <++>                                                                                   | <++>                                                                                                                                   |
+| <++>                                                                                   | <++>                                                                                                                                   |
+| <++>                                                                                   | <++>                                                                                                                                   |
+| <++>                                                                                   | <++>                                                                                                                                   |
+| <++>                                                                                   | <++>                                                                                                                                   |
+| <++>                                                                                   | <++>                                                                                                                                   |
+| <++>                                                                                   | <++>                                                                                                                                   |
+| <++>                                                                                   | <++>                                                                                                                                   |
+| <++>                                                                                   | <++>                                                                                                                                   |
 | <++>                                                                                   | <++>                                                                                                                                   |
 | <++>                                                                                   | <++>                                                                                                                                   |
 
